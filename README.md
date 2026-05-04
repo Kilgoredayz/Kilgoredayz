@@ -6,7 +6,7 @@
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
 <p align="center"> .
 
-<p align="center"> . Loose My Breath - Destiny's child .
+<p align="center"> . Toxic Pony - ALTÉGO .
 
 <p align="center">  .
 
