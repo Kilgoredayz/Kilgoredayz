@@ -1,16 +1,41 @@
-## Hi there 👋
 
-<!--
-**Kilgoredayz/Kilgoredayz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  
+<p align="center"> Kilgoredayz
 
-Here are some ideas to get you started:
+<p align="center"> .
+<p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
+<p align="center"> .
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> . Loose My Breath - Destiny's child .
+
+<p align="center">  .
+
+<p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ . " Can you keep up ?
+<p align="center"> . Baby boy, make me loose my breath 
+<p align="right"> . Bring the noise, make me lose my breath 
+<p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ . Hit me hard, make me loose my (hah, hah) ."
+
+
+<p align="center"> .  
+<p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
+<p align="center"> .
+
+<p align="center"> Call me König or Dayz 
+  
+<p align="center"> 4teen
+
+<p align="center"> I really want more friends so dont be shy n be my friend,, pretty please with a gun on top
+
+<p align="center"> Learning how to speak itlaian . German
+‎
+<p align="center"> König enthuasist | I'm him irl
+
+<p align="center"> .  
+<p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
+
+
+<p align="center"> ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎I love König sm guys he's me irl.
+  
+<p align="center"><img width="600" height="601" alt="dc5721d7b0754f08531edae8ca52c477" src="https://github.com/user-attachments/assets/0c6f58b4-b3e0-43f0-bb51-1cf7e955e9d7" />
+
+<p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
